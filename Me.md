@@ -1,4 +1,4 @@
-me use debian gnu/linux and netbsd
+me use debian gnu/linux and netbsd (toster funni)
 
 me can't code good
 
